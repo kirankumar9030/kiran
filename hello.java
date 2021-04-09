@@ -1,2 +1,0 @@
-my origin
-my region
