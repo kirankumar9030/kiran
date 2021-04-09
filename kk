@@ -1,3 +1,0 @@
-keli
-hllo
-hhaha
